@@ -1,4 +1,4 @@
-# 
+# smart nft floor sweeper bot | NFT-sniping + trait-analysis is the best nft floor sweeper bot, featuring NFT-sniping and trait-analysis. Fast, smart, and optimized for NFT trading
 
 
 
